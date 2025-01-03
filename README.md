@@ -2,8 +2,8 @@
 - 👀 I’m interested in teaching 
 - 🌱 I’m currently learning English 
 - 💞️ I’m looking to collaborate on t-shirt 
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns:umm nothing
+- ⚡ Fun fact: i trust easily 😄 
 
 <!---
 0708143/0708143 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
